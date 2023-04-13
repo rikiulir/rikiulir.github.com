@@ -1,1 +1,1 @@
-# rikiulir.github.com
+# rikiulir.github.io
